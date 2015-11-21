@@ -23,7 +23,7 @@ If you think someone should know about this, let them know by sending them to th
 - A story about how she's helped you out at some time in your life
 <img style="border:0; width:200px; padding:30px;float: right;" src="box1.jpg">
 - A fond memory you have of her
-- A picture you know she'd love to see
+- A *picture* you know she'd love to see
 - A note to tell her how much you care for her 
 - Anything at all that you think she might like to read or remember on her birthday
 
@@ -31,7 +31,7 @@ If you think someone should know about this, let them know by sending them to th
 
 - Use a recipe card, picture or index card that is ***no bigger than 4x6 inches in size***. This is important to make sure they all fit in the recipe box.
 - Use more than one card if you want... Think it'd take 10 to tell your story? Then use 10.  If we need to get a bigger box, we'll get a bigger box!
-- Tell others about it and get them to write her a note too ;-) Forward them this note, and get them to join the Facebook group at this link, so we can talk about it some more:
+- Tell others about it and get them to write her a note too ;-) Just send them to this page (http://www.bradparks.com), or get them to join the following private Facebook group, so we can talk about it some more:
 
     https://www.facebook.com/groups/843835985729441/
 
