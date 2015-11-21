@@ -7,7 +7,7 @@ scripts:
     #- cp bin/couscous.phar website/
     # Scripts to execute after generating the website
     after:
-      - cp -pr .couscous/generated/* .
+      - cp -pr .couscous/generated/* ../
 
 # Any variable you put in this file is also available in the Twig layouts:
 title: The Parks Family
