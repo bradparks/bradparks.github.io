@@ -48,7 +48,8 @@ If you think someone should know about this, let them know by sending them to th
 
 ### Too busy or not enough time to mail it? Just send us an email instead
 - You can just send us your note by [filling in the form here](http://goo.gl/forms/xPw5S11eHP)
-- or you can just go to our PRIVATE Facebook group and add it there as well.
+- or you can just go to our [PRIVATE Facebook group](https://www.facebook.com/groups/843835985729441/) and add it there as well.
+- or you can send an email to bradparks AT gmail.com or [private message Brad on facebook as well](https://www.facebook.com/mrbradparks) as well!
 
 Thanks!
 
