@@ -1,0 +1,1 @@
+php couscous.phar generate 
