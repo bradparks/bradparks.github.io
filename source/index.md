@@ -3,10 +3,13 @@
 
 ## Mom's turning 70 this January 2! 
 
+As you all know, mom is one of the most humble people you'll ever meet. We wanted to throw her a party for her 70th birthday, but of course she doesn't want a party!
 
-***We'd like to help her celebrate by getting 70 people to each write her a special note for her birthday, a note on a recipe card!***
+But we want to show her just how special she is, and how much she means to those around her.
 
-We’re going to take all the recipe cards, put them together in a hand crafted recipe box, wrap them with a beautiful bow and card, and give them to her on her birthday!
+***To do this, we'd like to help her celebrate by getting 70 people to each write her a special note for her birthday!***
+
+We’re going to take all these cards, put them together in a hand crafted recipe box, wrap them with a beautiful bow and card, and give them to her on her birthday!
 
 ### Now of course we want to keep this a secret - so DON'T tell her ;-)
 
@@ -35,7 +38,7 @@ If you think someone should know about this, let them know by sending them to th
 
     https://www.facebook.com/groups/843835985729441/
 
-- Give the card to any of the following by Dec 28th at the latest.  - me, Brock, Katie, April, Julie, Christine, etc. Or mail it to:
+- Give the card to any of the following by Dec 28th at the latest.  - Brad, Brock, Katie, April, Julie, Christine, etc. Or mail it to:
 
       <pre>
       Brad Parks
