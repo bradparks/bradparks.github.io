@@ -4,7 +4,6 @@
 ## Mom's turning 70 this January 2! 
 
 As you all know, mom is one of the most humble people you'll ever meet. We wanted to throw her a party for her 70th birthday, but of course she doesn't want a party!
-
 But we want to show her just how special she is, and how much she means to those around her.
 
 ***To do this, we'd like to help her celebrate by getting 70 people to each write her a special note for her birthday!***
