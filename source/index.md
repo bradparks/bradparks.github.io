@@ -7,13 +7,13 @@ As you all know, mom is one of the most humble people you'll ever meet. We wante
 
 But we want to show her just how special she is, and how much she means to those around her.
 
-***To do this, we'd like to help her celebrate by getting 70 people to each write her a special note for her birthday!***
+***To do this, we'd like to help her celebrate by getting at least 70 people to write her a special card/note/letter for her birthday!***
 
-We’re going to take all these cards, put them together in a hand crafted recipe box, wrap them with a beautiful bow and card, and give them to her on her birthday!
+We’re going to take all these cards, put them together in a hand crafted box, wrap them with a beautiful bow, and give them to her on her birthday!
 
 ### Now of course we want to keep this a secret - so DON'T tell her ;-)
 
-### Who should write the notes? Anyone! 
+### Who should write the cards? Anyone! 
 - Anyone that has either meant something to her, or she's meant something to them.
 - A kid she taught in school.
 - A friend she knew in high school, a childhood friend - Anyone! 
@@ -32,9 +32,10 @@ If you think someone should know about this, let them know by sending them to th
 
 ### So how does this work?
 
-- Use a recipe card, picture or index card that is ***no bigger than 4x6 inches in size***. This is important to make sure they all fit in the recipe box.
-- Use more than one card if you want... Think it'd take 10 to tell your story? Then use 10.  If we need to get a bigger box, we'll get a bigger box!
-- Tell others about it and get them to write her a note too ;-) Just send them to this page (http://www.bradparks.com), or get them to join the following private Facebook group, so we can talk about it some more:
+- Write a 
+- Write her a letter or card, or give us a picture you think she'd like to see. Any size at all, but preferably under a standard envelope size.
+- Seal the letter if you like - we're not going to read them unless you want us to. We just want it to be a beautiful surprise for her birthday.
+- Tell others about it and get them to write her a card too ;-) Just send them to this page (http://www.bradparks.com), or get them to join the following private Facebook group, so we can talk about it some more:
 
     https://www.facebook.com/groups/843835985729441/
 
@@ -47,15 +48,13 @@ If you think someone should know about this, let them know by sending them to th
       E3B 3R8
       506-454-2976
       </pre>
-- It's ok if you can't find a recipe card... Just send us the note you'd like included in the recipe box and we'll print it out nicely and include it as well.
 
 ### Too busy or not enough time to mail it? Just send us an email instead
 - You can just send us your note by [filling in the form here](http://goo.gl/forms/xPw5S11eHP)
 - or you can just go to our [PRIVATE Facebook group](https://www.facebook.com/groups/843835985729441/) and add it there as well.
 - or you can send an email to bradparks AT gmail.com or [private message Brad on facebook as well](https://www.facebook.com/mrbradparks)!
+- We'll print it out nicely and include it as well.
 
 Thanks!
 
-Tony, Brad, Brock, April and Katie
-
-
+Brad, Brock, Tony, April and Katie
