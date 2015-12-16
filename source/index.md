@@ -20,7 +20,7 @@ We’re going to take all these cards, put them together in a hand crafted box, 
 - So definitely pass the idea on to whoever you think would like to help us celebrate her in this way.
 
 
-If you think someone should know about this, let them know by sending them to this page.
+If you think someone should know about this, let them know by sending them to this page (http://www.bradparks.com). 
 
 ### On the card, you can put whatever you want... 
 - A story about how she's helped you out at some time in your life
@@ -32,7 +32,6 @@ If you think someone should know about this, let them know by sending them to th
 
 ### So how does this work?
 
-- Write a 
 - Write her a letter or card, or give us a picture you think she'd like to see. Any size at all, but preferably under a standard envelope size.
 - Seal the letter if you like - we're not going to read them unless you want us to. We just want it to be a beautiful surprise for her birthday.
 - Tell others about it and get them to write her a card too ;-) Just send them to this page (http://www.bradparks.com), or get them to join the following private Facebook group, so we can talk about it some more:
