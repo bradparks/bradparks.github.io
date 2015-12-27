@@ -15,7 +15,7 @@ We’re going to take all these cards, put them together in a hand crafted box, 
 
 ### Who should write the cards? Anyone! 
 - Anyone that has either meant something to her, or she's meant something to them.
-- A kid she taught in school.
+- A kid she taught in school (this could be you).
 - A friend she knew in high school, a childhood friend - Anyone! 
 - So definitely pass the idea on to whoever you think would like to help us celebrate her in this way.
 
