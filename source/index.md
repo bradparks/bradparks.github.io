@@ -24,7 +24,6 @@ If you think someone should know about this, let them know by sending them to th
 
 ### On the card, you can put whatever you want... 
 - A story about how she's helped you out at some time in your life
-<img style="border:0; width:200px; padding:30px;float: right;" src="box1.jpg">
 - A fond memory you have of her
 - A *picture* you know she'd love to see
 - A note to tell her how much you care for her 
